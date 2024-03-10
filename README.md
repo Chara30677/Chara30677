@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Chara30677
+- 👀 I’m interested in Game Design and cration, Video editing, and VR Horror Games .
+- 🌱 I’m currently learning How to make models for a VR Horror game.
+- 💞️ I’m looking to collaborate on Models, monster chase themes, lobby music that fades away the farther you get from it, Monster animation, and Jumpscares.
+- 📫 How to reach me By EMAIL: Chara30678@mail.com or by DISCORD: Chara30677.
+- 😄 Pronouns: He/They
+- ⚡ Fun fact: I am a Youtuber, tiktoker, and web designer. I have 2 websites. https://flivverparking.org/webdesign/2324period1/27chevja/default.html and https://feds.lol/Chara10163
