@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chara30677
-- 👀 I’m interested in Game Design and cration, Video editing, and VR Horror Games .
-- 🌱 I’m currently learning How to make models for a VR Horror game.
+- 👀 I’m interested in Game Design and Creation, Video editing, and VR Horror Games .
+- 🌱 I’m currently learning How to make models for a VR Horror game and how to make a unity project an APK.
 - 💞️ I’m looking to collaborate on Models, monster chase themes, lobby music that fades away the farther you get from it, Monster animation, and Jumpscares.
 - 📫 How to reach me By EMAIL: Chara30678@mail.com or by DISCORD: Chara30677.
 - 😄 Pronouns: He/They
