@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Chara30677
-- 👀 I’m interested in Game Design and Creation, Video editing, and VR Horror Games .
-- 🌱 I’m currently learning How to make models for a VR Horror game and how to make a unity project an APK.
+- 👀 I’m interested in Game Design and Creation, Video editing, VR Horror Games, And coding.
+🌱 I’m currently learning how to make models for a VR Horror game and how to make a Unity project an APK.
 - 💞️ I’m looking to collaborate on Models, monster chase themes, lobby music that fades away the farther you get from it, Monster animation, and Jumpscares.
-- 📫 How to reach me By EMAIL: Chara30678@gmail.com or by DISCORD: Chara30677.
-- 😄 Pronouns: He/They
-- ⚡ Fun fact: I am a Youtuber, tiktoker, and web designer. I have 2 websites. https://flivverparking.org/webdesign/2324period1/27chevja/default.html and https://feds.lol/Chara10163
+- 📫 How to reach me: By EMAIL: Chara30678@gmail.com or by DISCORD: Chara30677.
+- 😄 Pronouns: He/Him
+⚡ Fun fact: I am a YouTuber, TikToker, Web designer, and Femboy. I have three websites: https://flivverparking.org/webdesign/2324period1/27chevja/default.html, https://feds.lol/Chara10163, and https://charas-homepage.scienceontheweb.net/Homepage.html.
